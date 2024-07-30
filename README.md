@@ -10,7 +10,6 @@
 - 📫 How to reach me : **raghavaraju0106@gmail.com** 
   
 - ✨ connect with me : [Linkedin](https://www.linkedin.com/in/raghava-rathnakaram-044a14190)
-/)
   
 ## 🚀 **Languages and Tools:**
 
